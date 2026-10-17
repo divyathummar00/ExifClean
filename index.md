@@ -42,4 +42,4 @@ ExifClean does not address anyone under the age of 13 and collects zero personal
 
 ### 6. Contact Us
 If you have any questions or feedback regarding this Privacy Policy, you can reach us at:  
-**Email:** your-support-email@example.com
+**Email:** divya.thummar00@gmail.com
